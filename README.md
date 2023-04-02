@@ -1,5 +1,5 @@
 
-> Diese Seite bei [https://michael23schule.github.io/regenbogen11/](https://michael23schule.github.io/regenbogen11/) öffnen
+> Diese Seite bei [https://michael23schule.github.io/Farbkreis/](https://michael23schule.github.io/regenbogen11/) öffnen
 
 ## Als Erweiterung verwenden
 
